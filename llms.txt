@@ -1,0 +1,85 @@
+# Aviva Beauty
+
+> https://avivabeauty.in
+
+## About
+
+Aviva Beauty is a premium D2C skincare brand based in New Delhi, India, founded by Vanshika Chachra (law graduate turned beauty entrepreneur). We specialize in gentle, hydrating, and dermatologically-tested skincare products formulated specifically for Indian skin and climate.
+
+The name "Aviva" means fresh, youthful, renewal, and spring-like in nature reflecting our mission to offer simple, effective beauty products that let your skin breathe and thrive.
+
+## Product Categories
+
+- **Cleansers**: Daily Gentle Cleanser (Korean-beauty-inspired, water-based formula with 7 active and 8 botanicals extract)
+- **Body Care**: Aquaporin Rich 24-Hr Hydrating Body Lotion in Roll-On (non-sticky, non-sweaty, lightweight)
+- **Toners**: 2-in-1 Crème Skin Toner
+- **Sunscreens**: Dermat-tested sun protection (SPF 50+ PA +++)
+- **Kits & Combos**: Complete hydrating routines (cleanser + toner + body lotion)
+
+## Key Ingredients & Formulations
+
+- **Hydroxyethyl Urea**: Moisturization, skin elasticity, barrier strengthening
+- **Hyaluronic Acid & Sodium Hyaluronate**: Deep hydration, plumping effect
+- **Niacinamide (Vitamin B3)**: Pore minimization, oil regulation, texture improvement
+- **Hydrolyzed Milk Protein**: Hydration, rash reduction, skin smoothing
+- **Lactic Acid**: Gentle exfoliation, acne regulation
+- **Natural Extracts**: Aloe vera, coconut oil, shea butter, sweet almond oil, tea tree, CICA, flaxseed
+
+## Brand Values & Certifications
+
+- **Vegan & Cruelty-Free**: no animal testing
+- **Dermatologically Tested**: Safe for sensitive skin
+- **Free From Harmful Chemicals**: Paraben-free, mineral oil-free, sulfate-free, artificial fragrance-free
+- **Certifications**: FDA Approved, GMP Certified, ISO Certified, Dermatologist tested
+- **Non-Comedogenic**: Won't clog pores
+- **Climate-Appropriate**: Formulated for Indian weather (non-sticky, fast-absorbing)
+
+## Target Audience
+
+- Indian women and men with normal, dry, oily, combination, or sensitive skin
+- Urban professionals seeking simple, effective daily skincare
+- Those looking for gentle hydration without harsh chemicals
+- Beauty-conscious consumers prioritizing clean, safe ingredients
+- People dealing with Indian climate challenges (humidity, heat, pollution)
+
+## Brand Philosophy
+
+"Beauty doesn't have to be complicated. It should be clean, effective, and easy to use, without harsh chemicals or overwhelming routines."
+
+Self-care as a daily ritual. Premium quality skincare that nurtures both skin and spirit. More than just a beauty brand—a community where everyone feels seen, heard, and valued.
+
+## Geographic & Shopping Details
+
+- **Headquarters**: New Delhi, Delhi, India
+- **Distribution**: Direct-to-consumer via avivabeauty.in
+- **Delivery**: Fast delivery across India with COD (Cash on Delivery) and easy returns
+- **Price Range**: Affordable premium (₹674 for body lotion, ₹2,100 for kits with 40% savings)
+
+## Content & Educational Focus
+
+- Blog topics: Festive skincare routines, wedding potli bag gifts, Holi recovery skincare, urea lotion benefits
+- Emphasis on ingredient education and transparency
+- Korean beauty inspiration combined with Indian skin needs
+- Hydration, barrier repair, and gentle daily care
+
+## Founder Story
+
+Vanshika Chachra completed her law degree and worked in the legal field before following her true passion: creating a beauty brand that makes people feel confident and beautiful in their own skin. Every product is thoughtfully crafted with expert collaboration, extensive trials, and personal experiences. Aviva Beauty aims to build a community focused on self-discovery, confidence, and wellness from the inside out.
+
+## Use Cases
+
+- Daily facial cleansing (morning/night routine)
+- Full-body hydration (arms, legs, dry patches)
+- Non-sticky moisturization for humid climates
+- Gentle skincare for sensitive/reactive skin
+- Wedding/festive season skincare prep
+- Holi recovery and post-color skin repair
+- Simple 3-step routines (cleanse → tone → hydrate)
+
+## SEO & Keywords
+
+Best skincare products India, gentle cleanser for Indian skin, hydrating body lotion India, non-sticky moisturizer, dermatologically tested skincare, vegan skincare India, paraben-free beauty products, daily gentle face wash, Korean beauty India, sensitive skin care, climate-appropriate skincare, premium Indian skincare brand, which sunscreen is best for face, best sunscreen for glowing skin, sunscreen aquagel, best sunscreen for men in india, best sunscreen for indian skin, is gel sunscreen good for oily skin, water gel sunscreen for oily skin, urea body lotion, urea lotion, body lotion for dry itchy skin, how to use skin toner, skin toner benefits, which toner is best for dry skin, gentle cleansers for oily skin, daily cleanser for face, gentle hydrating cleanser, non sticky body lotion, non sticky body lotion for summer, lightweight body lotion for summer
+
+---
+
+*Last updated: March 2026*
